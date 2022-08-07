@@ -1,2 +1,0 @@
-# pizzaOtomasyonu# PizzaciOtomasyonu
-# PizzaciOtomasyonu
